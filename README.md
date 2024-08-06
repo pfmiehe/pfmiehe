@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning more about health behaviors data.<br>🤔 I’m looking for help with insights into well-being and health stuff.<br>💬 Ask me about any ML or AI stuff.<br>📫 How to reach me:  priscilla.miehe@gmail.com<br>😄 Pronouns: She/Her<br>⚡ Fun fact: My favorite musical genre is disco.<br><br>
+🌱 I’m currently learning more about health behaviors data.<br>🤔 I’m looking for help with insights into well-being and health stuff.<br> 📫 How to reach me:  priscilla.miehe@gmail.com<br>😄 Pronouns: She/Her<br>⚡ Fun fact: My favorite musical genre is disco.<br><br>
 
 
 ## 🌐 Socials:
